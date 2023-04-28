@@ -1,1 +1,1 @@
-# Laguatinhas.Site para programção
+# Laguatinhas. Site para programção
